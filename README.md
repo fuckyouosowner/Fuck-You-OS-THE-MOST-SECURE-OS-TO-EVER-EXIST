@@ -61,6 +61,8 @@ After FBI's ENTIRE security team hacks our users they find our AI waiting.. it d
 So after FBI's ENTIRE engineer team fixes it they get what's your name? what's your favourite colour?
 and boom bob likes blue.
 
+You can support FuckYouOS via monero : 87NoSUxSQFS7nfW9NQfN5DFgJLtF6dTXYGBVrEFaqUWsceHCuttRUhXWLdyKjZdLcNCr79XkKBw9uaLPoXAiEoWQ2KTT7Gp
+
 This was my fucking honor dealing with you.. FUCK YOU ALL
 
-Fuck You OS ~The Next Gen operating system coming Mar. 35 . 2190 BCE
+Fuck You OS ~The Next Gen operating system coming Apr. 30 . 2025 BCE
